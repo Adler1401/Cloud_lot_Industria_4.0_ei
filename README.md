@@ -1,0 +1,1 @@
+# Cloud_lot_Industria_4.0_ei
